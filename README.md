@@ -1,16 +1,38 @@
-## Hi there 👋
+<div align=center>
 
-<!--
-**MortyC-137Smith/MortyC-137Smith** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+**WIP WIP WIP WIP**
 
-Here are some ideas to get you started:
+###### This git is for Pony Town and an outlet for my recent R&M hyperfixation.
+##
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+### BYI:
+
+17 years old - 18 on September 04 (3 weeks oh god...)
+
+**Pro & Darkshipper.**
+
+No DNI list, I don't think they work. I block & hide freely.
+
+###### My lack of a DNI doesn't mean I'll be friendly or welcoming if you fit "basic" DNI criteria.
+
+**I will not friend you if you're under 16.**
+
+##
+
+### Failing to read any of the above does not make you exempt from me blocking you.
+
+###### Yes, that INCLUDES people who don't read Githubs before interacting. I didn't link my Git to my pony for shits and giggles.
+
+##
+
+### Fun info!!
+
+**Morty Smith IRL**: "doubles" are encouraged to interact.
+
+**Multishipper**: I'm more enthusiastic about some pairings than others, but am open to any.
+
+###### OTP is Mortycest.
+
+**WIP WIP WIP WIP**
+
+</div>
