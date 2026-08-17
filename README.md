@@ -17,7 +17,7 @@ No DNI list, I don't think they work. I block & hide freely.
 
 **I will not friend you if you're under 16.**
 
-###### This might seem obvious but I also won't friend you if you're antiship/fic. I do not make exceptions for this.
+###### This might be obvious but I also won't friend you if you're antiship/fic. I do not make exceptions for this.
 
 ##
 
