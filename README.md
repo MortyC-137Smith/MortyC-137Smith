@@ -31,6 +31,8 @@ No DNI list, I don't think they work. I block & hide freely.
 
 **Morty Smith IRL**: "doubles" are encouraged to interact.
 
+C&H encouraged! Sorry if I don't acknowledge you.
+
 **Multishipper**: I'm more enthusiastic about some pairings than others, but am open to any.
 
 ###### OTP is Mortycest.
