@@ -18,7 +18,7 @@
 
 No DNI list, I don't think they work. I block & hide freely.
 
-###### My lack of a DNI doesn't mean I'll be friendly or welcoming if you fit "basic" DNI criteria.<details> <summary>What I mean by "basic" criteria</summary> Radqueer, T.R.A.S.H, etc.</details> When I say I block and hide freely, I mean it. I'm #conceptum for the hide button /joke
+###### My lack of a DNI doesn't mean I'll be friendly or welcoming if you fit "basic" DNI criteria.<details> <summary>What I mean by "basic" criteria</summary> Radqueer, T.R.A.S.H, etc.</details>
 
 **I will not friend you if you're under 16**
 
