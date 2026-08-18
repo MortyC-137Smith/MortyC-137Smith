@@ -10,13 +10,15 @@
 
 ### BYI:
 
-17 years old - 18 on September 04 (3 weeks oh god...)
+17 years old - 18 on September 04 
+
+###### (3 weeks oh god...)
 
 **Pro & Darkshipper**
 
 No DNI list, I don't think they work. I block & hide freely.
 
-###### My lack of a DNI doesn't mean I'll be friendly or welcoming if you fit "basic" DNI criteria.<details> <summary>AKA</summary> Radqueer, T.R.A.S.H, etc.   </details>
+###### My lack of a DNI doesn't mean I'll be friendly or welcoming if you fit "basic" DNI criteria.<details> <summary>AKA</summary> Radqueer, T.R.A.S.H, etc.</details> When I say I block and hide freely I mean it. I selfship with the hide button, #conceptum. /half joke
 
 **I will not friend you if you're under 16**
 
