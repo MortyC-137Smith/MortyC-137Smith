@@ -19,8 +19,6 @@ No DNI list, I don't think they work. I block & hide freely.
 
 ###### This might be obvious but I also won't friend you if you're antiship/fic. I do not make exceptions for this.
 
-Sometimes I may be unresponsive via text, even if I'm moving and/or emoting. I will make it clear in my pony's name when this happens.
-
 ##
 
 ### You are responsible for reading the above before interacting with me.
