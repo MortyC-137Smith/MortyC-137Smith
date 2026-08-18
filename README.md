@@ -24,6 +24,8 @@ No DNI list, I don't think they work. I block & hide freely.
 
 ###### This might be obvious but I also won't friend you if you're antiship/fic. I do not make exceptions for this.
 
+Please don't try roleplaying with me it makes me nervous. Thank you.
+
 ##
 
 ### Fun info!!
