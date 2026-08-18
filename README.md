@@ -18,7 +18,7 @@
 
 No DNI list, I don't think they work. I block & hide freely.
 
-###### My lack of a DNI doesn't mean I'll be friendly or welcoming if you fit "basic" DNI criteria.<details> <summary>AKA</summary> Radqueer, T.R.A.S.H, etc.</details> When I say I block and hide freely I mean it. I selfship with the hide button, #conceptum. /half joke
+###### My lack of a DNI doesn't mean I'll be friendly or welcoming if you fit "basic" DNI criteria.<details> <summary>AKA</summary> Radqueer, T.R.A.S.H, etc.</details> When I say I block and hide freely, I mean it. I'm #conceptum for the hide button /joke
 
 **I will not friend you if you're under 16**
 
@@ -29,6 +29,8 @@ No DNI list, I don't think they work. I block & hide freely.
 ### Fun info!!
 
 **C&H encouraged!**
+
+###### Huge touch comf! Unlikely to approach other people who have c+h in their name.
 
 **Morty Smith IRL**, "doubles" are encouraged to interact.
 
@@ -42,7 +44,7 @@ No DNI list, I don't think they work. I block & hide freely.
 
 **Yumeshipper**: Fictosexual & Fictoromantic, I prefer fictional characters over people.
 
-###### Polyamorous & hypersharing!
+###### Polyamorous & hypersharing! Will list my f/os if you ask :3
 
 
 
