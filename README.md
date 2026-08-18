@@ -30,7 +30,7 @@ No DNI list, I don't think they work. I block & hide freely.
 
 **C&H encouraged!**
 
-###### Huge touch comf! Unlikely to approach you if you have c+h in your name I'm a scaredy-cat.
+###### Huge touch comf! Unlikely to initiate the cuddles if you have c+h in your name I'm a scaredy-cat.
 
 **Morty Smith IRL**, "doubles" are encouraged to interact.
 
