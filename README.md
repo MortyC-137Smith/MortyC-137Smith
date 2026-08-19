@@ -1,6 +1,5 @@
 <div align=center>
 
-
 ### BYI:
 
 17 years old - 18 on September 04 
@@ -31,8 +30,6 @@ Please don't try roleplaying with me it makes me nervous. Thank you.
 
 ###### Hi other Mortys hii
 
-
-
 **Multishipper**: I'm more enthusiastic about some pairings than others, but am open to any!
 
 ###### OTP is Mortycest.
@@ -41,10 +38,11 @@ Please don't try roleplaying with me it makes me nervous. Thank you.
 
 ###### Polyamorous & hypersharing! Will list my f/os if you ask :3
 
-**Autorose**: Autosexual & Autoromantic i love myself
+**Autorose**: Autosexual & Autoromantic
 
-###### I LOVE SELFCEST I LOVE SELFCEST I LOVE SELFCEST
+###### I LOVE SELFCEST I LOVE SELFCEST I LOVE SELFCEST I LOVE SELFCEST I LOVE SELFCEST
 
+Objectum Varietum
 
 
 </div>
