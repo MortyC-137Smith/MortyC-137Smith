@@ -17,6 +17,8 @@ No DNI list, I don't think they work. I block & hide freely.
 
 Please don't try roleplaying with me it makes me nervous. Thank you.
 
+###### I might be unresponsive / nonverbal sometimes, words are difficult. Patience is very appreciated.
+
 ##
 
 ### Fun info!!
@@ -39,7 +41,7 @@ Please don't try roleplaying with me it makes me nervous. Thank you.
 
 ###### Polyamorous & hypersharing! Will list my f/os if you ask :3
 
-Autorose #Selfcest
+**Autorose**: Autosexual & Autoromantic i love myself
 
 ###### I LOVE SELFCEST I LOVE SELFCEST I LOVE SELFCEST
 
