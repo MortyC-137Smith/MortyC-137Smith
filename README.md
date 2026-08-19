@@ -1,12 +1,5 @@
 <div align=center>
 
-**WIP WIP WIP WIP**
-
-###### This git is for Pony Town and an outlet for my recent R&M hyperfixation.
-
-###### Sorry if the tone of this README is negative I don't know how to fix it. I promise I'm kind and joyful sorry!
-
-##
 
 ### BYI:
 
@@ -21,8 +14,6 @@ No DNI list, I don't think they work. I block & hide freely.
 ###### My lack of a DNI doesn't mean I'll be friendly or welcoming if you fit "basic" DNI criteria.<details> <summary>What I mean by "basic" criteria</summary> Radqueer, T.R.A.S.H, etc.</details>
 
 **I will not friend you if you're under 16**
-
-###### This might be obvious but I also won't friend you if you're antiship/fic. I do not make exceptions for this.
 
 Please don't try roleplaying with me it makes me nervous. Thank you.
 
@@ -48,6 +39,9 @@ Please don't try roleplaying with me it makes me nervous. Thank you.
 
 ###### Polyamorous & hypersharing! Will list my f/os if you ask :3
 
+Autorose #Selfcest
+
+###### I LOVE SELFCEST I LOVE SELFCEST I LOVE SELFCEST
 
 
 
