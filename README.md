@@ -21,6 +21,10 @@ Please don't try roleplaying with me it makes me nervous. Thank you.
 
 ##
 
+Guns.lol(coming soon)⠀ ⠀ ⠀ ⠀ ⠀ ⠀ [Straw.page](https://mmortysmith.straw.page)
+
+##
+
 ### Fun info!!
 
 **C&H encouraged!**
