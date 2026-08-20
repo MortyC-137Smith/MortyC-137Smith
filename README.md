@@ -37,7 +37,7 @@ Please don't try roleplaying with me, it makes me nervous. Thank you.
 
 **Multishipper**: I'm more enthusiastic about some pairings than others, but am open to any!
 
-###### OTP is Mortycest.
+###### My OTP is Mortycest.
 
 **Yumeshipper**: Fictosexual & Fictoromantic, I prefer fictional characters over people.
 
