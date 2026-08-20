@@ -21,7 +21,7 @@ Please don't try roleplaying with me, it makes me nervous. Thank you.
 
 ##
 
-[Guns.lol](https://guns.lol/mortysmith)⠀ ⠀ ⠀ ⠀ ⠀ [Straw.page](https://mmortysmith.straw.page)
+ ⠀ ⠀[Guns.lol](https://guns.lol/mortysmith)⠀ ⠀ ⠀ ⠀  ⠀ ⠀⠀  ⠀ ⠀  [Straw.page](https://mmortysmith.straw.page)
 
 ##
 
